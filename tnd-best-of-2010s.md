@@ -1,105 +1,105 @@
 # 1 - 100
 
-A Tribe Called Quest - We Got It from Here… Thank You 4 Your Service
-A.A.L. - 2012 - 2017
-Agalloch - Marrow of the Spirit
-Alex Cameron - Miami Memory
-Algiers - The Underside of Power
-Altar of Plagues - Teethed Glory and Injury
-Andrew Jackson Jihad - Knife Man
-Ariel Pink - Pom Pom
-Battles - Gloss Drop
-Beach House - Teen Dream
-Behemoth - The Satanist
-Big K.R.I.T. - 4eva Is a Mighty Long Time
-Billie Eilish - When We All Fall Asleep, Where Do We Go?
-Billy Woods - History Will Absolve Me
-Björk - Vulnicura
-BROCKHAMPTON - Saturation Trilogy
-Car Seat Headrest - Teens of Denial
-Charli XCX - Charli
-Clarence Clarity - No Now
-clipping. - CLPPNG
-Crying - Beyond the Fleeting Gales
-D’Angelo and the Vanguard - Black Messiah
-Daft Punk - Random Access Memoies
-Danny Brown - Atrocity Exhibition
-Daughters - You Won’t Get What You Want
-David Bowie - Blackstar
-Death Grips - The Money Store
-Death Grips - The Powers That B
-Destroyer - Kaputt
-Dope Body - Natural History
-Dorian Electra - Flamboyant
-Father John Misty - Pure Comedy
-FKA twigs - LP1
-Fleet Foxes - Helplessness Blues
-Flying Lotus - Cosmogramma
-Four Tet - There Is Love in You
-Frank Ocean - Blonde
-Freddie Gibbs & Madlib - Piñata
-Ghost - Meliora
-Gorillaz - Plastic Beach
-Grave Babies - Crusher
-Grouper - A I A
-Haru Nemuri - Haru To Shura
-Iceage - Plowing Into the Field of Love
-Jack White - Boarding House Reach
-Janelle Monáe - The Archandroid
-Joanna Newsom - Have One on Me
-JPEGMAFIA - Veteran
-Julia Holter - Have You in My Wilderness
-Kamasi Washington - The Epic
-Kanye West - The Life of Pablo
-Kendrick Lamar - To Pimp a Butterfly
-Kero Kero Bonito - Bonito Generation
-Kids See Ghosts - Self-Titled
-Killer Mike - R.A.P. Music
-King Gizzard and the Lizard Wizard - Nonagon Infinity
-Kirin J. Callinan - Bravado
-Krallice - Years Past Matter
-La Dispute - Wildlife
-LCD Soundsystem - This Is Happening
-Liars - Mess
-Lingua Ignota - Caligula
-Little Simz - GREY Area
-Liturgy - H.A.Q.Q.
-Matana Roberts - COIN COIN Chapter Four: Memphis
-Melt Banana - Fetch
-MGMT - Little Dark Age
-Mount Eerie - A Crow Looked at Me
-Nails - Unsilent Death
-Natalia Lafourcade - Musas Vol. 2
-Nicolas Jaar - Space Is Only Noise
-Ondatrópica - Self-Titled
-Oneohtrix Point Never- Replica
-Otoboke Beaver - Itekoma Hits
-Perfume Genius - No Shape
-Perfume Genius - Put Your Back N 2 It
-PJ Harvey - Let England Shake
-Prurient - Frozen Niagara Falls
-Queens of the Stone Age - …Like Clockwork
-Radiohead - A Moon Shaped Pool
-Regina Spektor - Remember Us to Life
-Richard Dawson - 2020
-Rosalía - Los Angeles
-Run the Jewels - Run the Jewels 2
-Scott Walker - Bish Bosch
-Shabazz Palaces - Black Up
-Sons of Kemet - Your Queen Is a Reptile
-Sun Kil Moon - Benji
-Sun Kil Moon - Common as Light and Love Are Red Valleys of Blood
-Swans - To Be Kind
-The Books - The Way Out
-The Knife - Shaking the Habitual
-Tim Hecker - Virgins
-Travis Scott - Rodeo
-Tyler, the Creator - Igor
-Weyes Blood - Titanic Rising
-Women - Public Strain
-Xiu Xiu - Girl with Basket of Fruit
-Xiu Xiu - Plays the Music of Twin Peaks
-YG - Still Brazy
+1. A Tribe Called Quest - We Got It from Here… Thank You 4 Your Service
+2. A.A.L. - 2012 - 2017
+3. Agalloch - Marrow of the Spirit
+4. Alex Cameron - Miami Memory
+5. Algiers - The Underside of Power
+6. Altar of Plagues - Teethed Glory and Injury
+7. Andrew Jackson Jihad - Knife Man
+8. Ariel Pink - Pom Pom
+9. Battles - Gloss Drop
+10. Beach House - Teen Dream
+11. Behemoth - The Satanist
+12. Big K.R.I.T. - 4eva Is a Mighty Long Time
+13. Billie Eilish - When We All Fall Asleep, Where Do We Go?
+14. Billy Woods - History Will Absolve Me
+15. Björk - Vulnicura
+16. BROCKHAMPTON - Saturation Trilogy
+17. Car Seat Headrest - Teens of Denial
+18. Charli XCX - Charli
+19. Clarence Clarity - No Now
+20. clipping. - CLPPNG
+21. Crying - Beyond the Fleeting Gales
+22. D’Angelo and the Vanguard - Black Messiah
+23. Daft Punk - Random Access Memoies
+24. Danny Brown - Atrocity Exhibition
+25. Daughters - You Won’t Get What You Want
+26. David Bowie - Blackstar
+27. Death Grips - The Money Store
+28. Death Grips - The Powers That B
+29. Destroyer - Kaputt
+30. Dope Body - Natural History
+31. Dorian Electra - Flamboyant
+32. Father John Misty - Pure Comedy
+33. FKA twigs - LP1
+34. Fleet Foxes - Helplessness Blues
+35. Flying Lotus - Cosmogramma
+36. Four Tet - There Is Love in You
+37. Frank Ocean - Blonde
+38. Freddie Gibbs & Madlib - Piñata
+39. Ghost - Meliora
+40. Gorillaz - Plastic Beach
+41. Grave Babies - Crusher
+42. Grouper - A I A
+43. Haru Nemuri - Haru To Shura
+44. Iceage - Plowing Into the Field of Love
+45. Jack White - Boarding House Reach
+46. Janelle Monáe - The Archandroid
+47. Joanna Newsom - Have One on Me
+48. JPEGMAFIA - Veteran
+49. Julia Holter - Have You in My Wilderness
+50. Kamasi Washington - The Epic
+51. Kanye West - The Life of Pablo
+52. Kendrick Lamar - To Pimp a Butterfly
+53. Kero Kero Bonito - Bonito Generation
+54. Kids See Ghosts - Self-Titled
+55. Killer Mike - R.A.P. Music
+56. King Gizzard and the Lizard Wizard - Nonagon Infinity
+57. Kirin J. Callinan - Bravado
+58. Krallice - Years Past Matter
+59. La Dispute - Wildlife
+60. LCD Soundsystem - This Is Happening
+61. Liars - Mess
+62. Lingua Ignota - Caligula
+63. Little Simz - GREY Area
+64. Liturgy - H.A.Q.Q.
+65. Matana Roberts - COIN COIN Chapter Four: Memphis
+66. Melt Banana - Fetch
+67. MGMT - Little Dark Age
+68. Mount Eerie - A Crow Looked at Me
+69. Nails - Unsilent Death
+70. Natalia Lafourcade - Musas Vol. 2
+71. Nicolas Jaar - Space Is Only Noise
+72. Ondatrópica - Self-Titled
+73. Oneohtrix Point Never- Replica
+74. Otoboke Beaver - Itekoma Hits
+75. Perfume Genius - No Shape
+76. Perfume Genius - Put Your Back N 2 It
+77. PJ Harvey - Let England Shake
+78. Prurient - Frozen Niagara Falls
+79. Queens of the Stone Age - …Like Clockwork
+80. Radiohead - A Moon Shaped Pool
+81. Regina Spektor - Remember Us to Life
+82. Richard Dawson - 2020
+83. Rosalía - Los Angeles
+84. Run the Jewels - Run the Jewels 2
+85. Scott Walker - Bish Bosch
+86. Shabazz Palaces - Black Up
+87. Sons of Kemet - Your Queen Is a Reptile
+88. Sun Kil Moon - Benji
+89. Sun Kil Moon - Common as Light and Love Are Red Valleys of Blood
+90. Swans - To Be Kind
+91. The Books - The Way Out
+92. The Knife - Shaking the Habitual
+93. Tim Hecker - Virgins
+94. Travis Scott - Rodeo
+95. Tyler, the Creator - Igor
+96. Weyes Blood - Titanic Rising
+97. Women - Public Strain
+98. Xiu Xiu - Girl with Basket of Fruit
+99. Xiu Xiu - Plays the Music of Twin Peaks
+100. YG - Still Brazy
 
 # 100 - 200
 
